@@ -1,0 +1,1 @@
+The Angora rabbit, which is one of the oldest types of domestic rabbit, is bred for the long fibers of its coat, known as Angora wool, which are gathered by shearing, combing or plucking. Because rabbits do not possess the same allergy-causing qualities as many other animals, their wool is an important alternative.
